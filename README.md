@@ -1,1 +1,1 @@
-Most files are from reddit.com/r/wallpaper or reddit.com/r/wallpapers - credits to there.
+Most files are from https://reddit.com/r/wallpaper or https://reddit.com/r/wallpapers - credits to there.
